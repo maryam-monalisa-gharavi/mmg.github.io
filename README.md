@@ -1,4 +1,4 @@
-# UX Researcher & AI Linguistic Engineer
+# UXR | AI | PhD
 
 ### Education
 Comparative Literature, Ph.D.
